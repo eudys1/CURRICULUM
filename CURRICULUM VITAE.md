@@ -22,9 +22,8 @@ ___
 
 ## Idiomas:
 
-
-
-
+- **Ingles:** B1
+- **Frances:** A2
 
 ___
 
