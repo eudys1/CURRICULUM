@@ -20,6 +20,14 @@ ___
 
 ___
 
+## Idiomas:
+
+
+
+
+
+___
+
 ## Más información:
 
 Horario adaptable preferiblemente jornada completa 
